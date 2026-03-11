@@ -1,1 +1,1 @@
-[![Hello! You have stumbled upon my Github! Why are you here? Why are you not dm'ing me instead? I don't bite.](https://github.com/user-attachments/assets/51cc8ef2-3736-4a9b-8cd5-8834307d54cd)](https://discord.gg/gQxAcHkWex)
+[![Hello! You have stumbled upon my Github! Why are you here? Why are you not dm'ing me instead? I don't bite.](https://github.com/user-attachments/assets/51cc8ef2-3736-4a9b-8cd5-8834307d54cd)](https://google.com)
